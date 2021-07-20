@@ -1,4 +1,4 @@
-stupid boy that wanna learn coding
+stupid boy that learns C#
 
 
 
